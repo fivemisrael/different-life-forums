@@ -1,2 +1,2 @@
-# different-life-forums
+# Different Life DLRP Forums
 Different Life Forums
